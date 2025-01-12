@@ -14,3 +14,7 @@ cayenne pepper\
 2. add lentils and water to simmer (10-15 min)\
 3. mix tahini, peanut butter, cayenne pepper, with little water and add to lentils\
 4. add curry cubes 
+
+### RICE COOKER BIBIMBAP
+
+[recipe](https://cookwithdana.com/easy-one-pot-bibimbap/#recipe)
